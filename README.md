@@ -1,0 +1,2 @@
+# premium-luthier-001-luthier-stringed-instrument-bu
+Tired of scattered YouTube tutorials that leave you with more questions than answers? This step-by-step workshop turns your dream of building a guitar, violin, or mandolin into a guided, frustration-free process.  Stop guessing and start building with a proven framework that covers everything from wood selection to final setup. Unlike generic cours
